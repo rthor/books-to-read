@@ -23,3 +23,7 @@ I challanged myself to read 20 books in 2016 and this is the list. I'll try to k
 **[Mostly Harmless](https://www.goodreads.com/book/show/360.Mostly_Harmless)** by [Douglas Adams](https://www.goodreads.com/author/show/4.Douglas_Adams)
 
 **[Red Rising](http://www.goodreads.com/book/show/15839976-red-rising)** by [Pierce Brown](https://www.goodreads.com/author/show/6474348.Pierce_Brown)
+
+**[1984](https://www.goodreads.com/book/show/5470.1984)** by [George Orwell](https://www.goodreads.com/author/show/3706.George_Orwell)
+
+**[Brave new world](https://www.goodreads.com/book/show/5129.Brave_New_World)** by [Aldous Huxley](https://www.goodreads.com/author/show/3487.Aldous_Huxley)
