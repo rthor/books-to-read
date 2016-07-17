@@ -12,9 +12,9 @@ I challanged myself to read 20 books in 2016 and this is the list. I'll try to k
 
 **[The Art of War](https://www.goodreads.com/book/show/10534.The_Art_of_War)** by [Sun Tzu](https://www.goodreads.com/author/show/1771.Sun_Tzu)
 
-## Currently reading
-
 **[Animal Farm](https://www.goodreads.com/book/show/7613.Animal_Farm)** by [George Orwell](https://www.goodreads.com/author/show/3706.George_Orwell)
+
+## Currently reading
 
 ## Backlog
 
