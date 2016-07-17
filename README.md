@@ -10,17 +10,17 @@ I challanged myself to read 20 books in 2016 and this is the list. I'll try to k
 
 **[1984](https://www.goodreads.com/book/show/5470.1984)** by [George Orwell](https://www.goodreads.com/author/show/3706.George_Orwell)
 
+**[The Art of War](https://www.goodreads.com/book/show/10534.The_Art_of_War)** by [Sun Tzu](https://www.goodreads.com/author/show/1771.Sun_Tzu)
+
 ## Currently reading
 
 **[Animal Farm](https://www.goodreads.com/book/show/7613.Animal_Farm)** by [George Orwell](https://www.goodreads.com/author/show/3706.George_Orwell)
 
-**[Red Rising](http://www.goodreads.com/book/show/15839976-red-rising)** by [Pierce Brown](https://www.goodreads.com/author/show/6474348.Pierce_Brown)
-
-## Next 
+## Backlog
 
 **[Life, the Universe and Everything](https://www.goodreads.com/book/show/8694.Life_the_Universe_and_Everything)** by [Douglas Adams](https://www.goodreads.com/author/show/4.Douglas_Adams)
 
-## Backlog
+**[Red Rising](http://www.goodreads.com/book/show/15839976-red-rising)** by [Pierce Brown](https://www.goodreads.com/author/show/6474348.Pierce_Brown)
 
 **[So Long, and Thanks for All the Fish](https://www.goodreads.com/book/show/8698.So_Long_and_Thanks_for_All_the_Fish)** by [Douglas Adams](https://www.goodreads.com/author/show/4.Douglas_Adams)
 
